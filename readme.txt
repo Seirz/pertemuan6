@@ -1,0 +1,1 @@
+saya hapus semua file 
